@@ -1,4 +1,5 @@
 -  👋 oi, eu sou @mavipss
+- meu email de contato e  [email] (maria.vitoriaperezdos.santos@escola.pr.gov.br)
 - 🌈 estou interessada em mc cabelinho e garotas gostosas
 - 👾 atualmente estou compromissada com o little hair
 - 📫 How to reach me ...
